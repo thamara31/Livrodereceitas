@@ -29,7 +29,6 @@
 10. Depois é só colocar o recheio na seguinte ordem: molho de tomate, queijo mussarela, rodelas de tomate e orégano.
 11. Deixe cozinhar por 20 minutos em fogo médio, ou até que a massa fique crocante.
 12. Depois retire e deixe esfriar.
-13. Sirva em seguida.
 
 
 
