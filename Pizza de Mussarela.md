@@ -1,4 +1,4 @@
-##### Pizza de Mozarela 🍕
+##### Pizza de Mussarela 🍕
 
 ##### **Ingredientes**
 
